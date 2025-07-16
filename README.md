@@ -1,4 +1,4 @@
-## Hi! i'm Sara
+## Hi! i'm Sara!
 
 💻 CS undergrad | 4 semesters deep 🎓✨  
 🌸 Web development beginner — HTML & CSS ✔️💅  
